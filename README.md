@@ -1,0 +1,1 @@
+This recipe is about making cookies. My friend gave me the recipe a week ago and she made it for her birthday and it tasted very good so I needed the recipe for it. The cookies are chocolate chip flavored and made from scratch.
