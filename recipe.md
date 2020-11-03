@@ -1,4 +1,4 @@
-1/2 cup suar
+1/2 cup sugar
 1 cup brown sugar
 1 tsp salt
 1 butter (browned)
